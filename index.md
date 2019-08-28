@@ -6,7 +6,7 @@ Enjoy our free services
 Join our Telegram  or Whatsapp groups 
 
 
-t.me/techarena0
+ https://t.me/techarena0
 
 https://chat.whatsapp.com/DDyZTmcvNrCAm3P90y416h
 
